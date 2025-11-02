@@ -1,4 +1,4 @@
-# Nouvelles Formes Narrative
+# Nouvelles Formes Narrative - 2024-2025
 Documentation du Cours de 3ème Année : Nouvelle Forme de Narration, Section Art et Design Numérique
 
 ## Brief
